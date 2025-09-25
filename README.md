@@ -72,7 +72,7 @@ I am currently seeking opportunities in the following areas:
 - Training Positions: Web and Mobile Development Trainer or Application Developer
 
 ## contact me
-**Mail :** mayotyohan@gmail.com <br>
+**Mail :** crackboy.business@gmail.com <br>
 **Linkedin :** [linkedin.com/in/yohan-mayot-561668130](https://www.linkedin.com/in/yohan-mayot-561668130) <br>
 **Portfolio(en cours) :** [www.yohanmayot.com](https://www.yohanmayot.com)
 
@@ -150,7 +150,7 @@ Je recherche actuellement des opportunités dans les domaines suivants :
 - Postes de formation : Formateur en développement web et mobile ou Concepteur Développeur d'Application
 
 ## Contactez-moi
-**Mail :** mayotyohan@gmail.com <br>
+**Mail :** crackboy.business@gmail.com <br>
 **Linkedin :** [linkedin.com/in/yohan-mayot-561668130](https://www.linkedin.com/in/yohan-mayot-561668130) <br>
 **Portfolio (en cours) :** [www.yohanmayot.com](https://www.yohanmayot.com) <br>
 
